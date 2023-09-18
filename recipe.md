@@ -6,7 +6,7 @@
 - 3/4 cup unsweetened cocoa powder
 - 1 cup chocolate chips
 - 1 tsp vanilla extract
-- eat all
+- 1 cup milk
 - ...
 
 ## Instructions:
